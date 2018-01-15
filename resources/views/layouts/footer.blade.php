@@ -1,0 +1,1 @@
+<hr>Copyright 2017 Muhammad Aldhit Lutfiadi Sukmawijaya </hr>
